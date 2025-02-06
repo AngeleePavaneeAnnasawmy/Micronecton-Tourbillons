@@ -13,7 +13,8 @@ To play this board game, you will need the following:
 - the fact sheet that explains the ecology of the 6 micronecton organisms (i.e., the players)
 - the 6 micronekton organisms should be printed and cut out
   
+This game can be played by groups of 6 people at a time. Each group would have the board game and fact sheet printed on A4 papers.  The organisms from the file "P.Annasawmy_Micronecton_Tourbillons_organisms to print" should be printed out, can be laminated, and need to be cut out of the sheets. Each group would have a set of these 6 organisms. 
 
-  
+Instructions to play the game can be found on Page 6 of the manual. 
 
 
